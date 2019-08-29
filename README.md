@@ -12,3 +12,6 @@ jc
 jc
 
 jc
+
+
+i cant beleive im learning this
